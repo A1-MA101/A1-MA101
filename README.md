@@ -28,7 +28,6 @@ Fun Fact:
 ----
 - I have a cat
 - I love playing & analyzing Video games
-- **Hobbies**: manga, gym, reading books, building things. 
 
 📫 How to reach me:
 ----
